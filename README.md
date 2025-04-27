@@ -26,8 +26,6 @@
 
 ---
 
-🔗 Let's connect:
-- 💼 LinkedIn:https://www.linkedin.com/in/malabi-mondal-4355b61a7/
 
 
 ---
